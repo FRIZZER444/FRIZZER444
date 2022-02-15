@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @FRIZZER444
-- 👀 I’m interested in 3D
+- 👀 I’m interested in making 3D animation
 - 🌱 I’m currently learning 3D
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
